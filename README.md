@@ -1,0 +1,1 @@
+# SZTE_ALG
